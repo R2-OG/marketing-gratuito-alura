@@ -1,0 +1,1 @@
+Bora 5 minutinhos de soco, trocação sincera?
